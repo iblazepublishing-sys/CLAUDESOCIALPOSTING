@@ -1,0 +1,7 @@
+{
+  "_note": "PostEverywhere account IDs. Workspace: My Workspace.",
+  "cosmiccellfoods":   {"posteverywhere_id": 12073, "platform": "instagram"},
+  "cwbotanicshealth":  {"posteverywhere_id": 12074, "platform": "instagram"},
+  "cwbotanicalhealth": {"posteverywhere_id": 12075, "platform": "instagram", "status": "needs reconnection in PostEverywhere"},
+  "cwbotanics":        {"posteverywhere_id": 12127, "platform": "instagram"}
+}

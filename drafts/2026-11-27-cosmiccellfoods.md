@@ -24,7 +24,7 @@ Keyword: KIDNEY
 Caption:
 Taking iron pills for months and your iron is still low? It might not be about how much you swallow. It's about what's in the way.
 
-🖤 BLACK FRIDAY pricing is on now. Comment IRON and we'll send you the link.
+🖤 BLACK FRIDAY is live. Comment IRON and we'll send you the link.
 
 When waste builds up in the blood, iron doesn't get used and oxygen doesn't get delivered. And most iron pills are the oxide form, which is hard for your cells to absorb.
 

@@ -17,9 +17,6 @@ Our approach is a sequence: cleanse first, then replenish the minerals your kidn
 3. Can we compare my labs today vs. 30 days from now?
 
 🖤 BLACK FRIDAY is live. Comment KIDNEY and we'll send you the link.
-
-Stay under your doctor's care. Individual results vary.
-#kidneyhealth #ckd #kidneydisease #alkalineplants #blackfriday
 Keyword: KIDNEY
 
 ## 2. Iron Power (1125 - 5 IP) | media 4ae481d8-1660-4d3d-859b-e59521654d28

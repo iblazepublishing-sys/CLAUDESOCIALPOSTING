@@ -86,6 +86,8 @@ Do it in order:
 
 Anti-Obesity is made from 100% alkaline plants and helps with appetite, so you're not always hungry. No crash diet. 60-day money-back guarantee plus all 3 nutrition guides.
 
+On medication? Take it at least 1 hour after, and check with your doctor.
+
 Keyword: BLOAT
 
 ## 6. C2 Cellular Chelation (1125 - 9 C2) | media 43a85386-02a7-4b8a-bf95-cb0a02db249b

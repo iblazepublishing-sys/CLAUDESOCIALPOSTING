@@ -7,6 +7,8 @@ All are Reels. Comment keyword triggers the autoresponder DM.
 Caption:
 Two numbers on your lab sheet go into how kidney disease is staged. Most people have only ever heard about one of them.
 
+🖤 BLACK FRIDAY is live. Comment KIDNEY and we'll send you the link.
+
 eGFR gets all the attention. Your urine ACR shows how much protein is leaking through your filters, and nobody reads it out loud to you.
 
 Our approach is a sequence: cleanse first, then replenish the minerals your kidneys lean on. That's the idea behind Kidney Remedy, made only from alkaline plants.
